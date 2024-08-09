@@ -1,3 +1,4 @@
+Let's begin!
 Filling
 8 medium peeled apples, cut into 1-inch chunks that are 1/4 – 1/2 inch thick (about 10 cups, or 1200g, chunks)
 1/2 cup (100g) packed light or dark brown sugar
@@ -12,3 +13,4 @@ Topping
 1 teaspoon ground cinnamon
 1/2 cup (8 Tbsp; 113g) unsalted butter, cold and cubed
 1 cup (85g) old-fashioned whole rolled oats
+Enjoy my recipe!
